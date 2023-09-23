@@ -38,7 +38,7 @@
         
         
     <h1
-    <style="color:pink;">ILOVEYOUSOMUCHH😚❤️</h1>
+    <style="color:pink;">ILOVEYOUSOMUCHH</h1>
     
     
     <img
